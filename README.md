@@ -1,0 +1,2 @@
+# berkay
+https://dinamikwebtasarim.com
